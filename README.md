@@ -3,7 +3,7 @@
 
 𓂃ৎ୭   Hello, I go by many names but preferably Mookie or Madi .
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ts7iv6yt53whgxdprzrnl2dw7q&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=000000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ts7iv6yt53whgxdprzrnl2dw7q&cover_image=true&theme=natemoo-re&show_offline=true&background_color=326331&interchange=true&bar_color=b3005f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <img width="1210" height="769" alt="image" src="https://github.com/user-attachments/assets/8a8fc1ab-c67f-4cd3-9087-38c66f33dd11" />
 
