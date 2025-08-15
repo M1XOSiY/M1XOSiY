@@ -22,4 +22,4 @@ Pookies: Shooby, Dark, Lazy, Cherry, Allison, Halie, Jazzy, and more.
 
 Dookies: Nebby and Colin
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=blueviolet&plastic&label=Lurkers)
+![](https://komarev.com/ghpvc/?username=M1XOSiY&color=blueviolet&style=flat-square&label=Lurkers)
