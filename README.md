@@ -23,5 +23,3 @@ I'm usually asleep or doing work whenever I'm on PonyTown, you can find me near 
 Pookies: Shooby, Lumi, Dark, Lazy, Cherry, Baldison, Sukii, Jazzy, and more.
 
 Dookies: Nebby and Colin
-
-![](https://komarev.com/ghpvc/?username=M1XOSiY&color=blueviolet&style=flat-square&label=Lurkers)
