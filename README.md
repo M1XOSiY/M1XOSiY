@@ -18,7 +18,7 @@ I'm usually asleep or doing work whenever I'm on PonyTown, you can find me near 
 
 •·················•·················•·················•·················•·················•·················•·················•·················•·················•·················•·················•·················•·················•·················•
 
-Pookies: Shooby, Dark, Lazy, Cherry, Allison, Halie, Jazzy, and more.
+Pookies: Shooby, Lumi, Dark, Lazy, Cherry, Baldison, Sukii, Jazzy, and more.
 
 Dookies: Nebby and Colin
 
