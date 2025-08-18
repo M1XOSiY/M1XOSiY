@@ -1,11 +1,11 @@
-# "The wind has risen... Where do you wanna go today?"
 ✠———✠———✠———✠———✠———✠———✠———✠———✠———✠———✠———✠———✠———✠———✠———✠
 
 𓂃ৎ୭   Hello, I go by many names but preferably Mookie or Madi .
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ts7iv6yt53whgxdprzrnl2dw7q&cover_image=true&theme=natemoo-re&show_offline=true&background_color=326331&interchange=true&bar_color=b3005f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="1210" height="769" alt="image" src="https://github.com/user-attachments/assets/8a8fc1ab-c67f-4cd3-9087-38c66f33dd11" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/886afb01-4108-4915-a61a-3f90da8d1d7f" />
+
 
 
 My Strawpage will be unavailable until I make a new one, so here's little info about me below.
