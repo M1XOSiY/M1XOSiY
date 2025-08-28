@@ -1,5 +1,7 @@
 Hey! I'm Mookie/Madi (She/He/Them) and you'll usually find me around Hoyoverse fandom on PonyTown.
 
+I'm pretty shy when it comes to encounters and also awkward, so don't mind me repeating emojis because most of time I'm auto pilot...
+
 INFP-T * Genf/Panx * 18f
 
 **Please hmu if you know how to make a graphic like rentry examples** :pray:
