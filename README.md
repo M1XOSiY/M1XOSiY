@@ -8,8 +8,8 @@ INFP-T * Genf/Panx * 18f
 
 This *README* is temporary for my introduction to possible friends and/or pookies.
 
-<img width="306" height="320" alt="image" src="https://github.com/user-attachments/assets/c65c4028-019c-4e8d-9a1b-908e64c4b5ba" />
-<img width="320" height="320" alt="image" src="https://github.com/user-attachments/assets/9f24fecc-6ccf-4c00-87ee-361981660d9f" />
+<img width="256" height="256" alt="image" src="https://github.com/user-attachments/assets/166c585f-bb6f-451e-aa2f-c5e3efe2616e" />
+<img width="256" height="256" alt="image" src="https://github.com/user-attachments/assets/8c5c7eae-0717-49e6-be85-27be4d751e9e" />
 
 DNI If you're a proshipper or just geniunely a bad person, I'll block you if I find something we don't agree on and/or other reasons.
 
