@@ -1,6 +1,6 @@
-Hey! I'm Mookie/Madi (She/He/Them) and you'll usually find me around Hoyoverse fandom on PonyTown.
+Hey! I'm Mookie/Madi and you'll usually find me around Hoyoverse fandom on PonyTown.
 
-I'm pretty shy when it comes to encounters and also awkward, so don't mind me repeating emojis because most of time I'm auto pilot...
+I'd love to have friends so please don't be afraid to ask! I can be awkward and shy at first so don't mind that <3.
 
 INFP-T * Genf/Panx * 18f
 
