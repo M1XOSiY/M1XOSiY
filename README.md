@@ -6,6 +6,6 @@ July 28 (18y) . INFP-T . BiG/Omni
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ts7iv6yt53whgxdprzrnl2dw7q&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-DNI If you're a proshipper or just geniunely a bad person, I'll block you if I find something we don't agree on and/or other reasons.
+DNI If you're a proshipper or just basic criteria, I'll block you if I find something we don't agree on and/or other reasons.
 
 This *README* is temporary for my introduction to possible friends and/or pookies.
