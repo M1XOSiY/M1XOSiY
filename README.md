@@ -1,6 +1,6 @@
 <div align="center">
 
-Artist: @gei_gocic
+Artist: @[gei_gocic](https://x.com/gei_gocic)
 
 <img width="320" height="320" alt="ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/0983afaf-53b3-4067-83e3-3f9818f78cec" />
 
